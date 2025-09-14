@@ -14,3 +14,8 @@ Here are some ideas to get you started:
 - 😄 Pronouns: ...
 - ⚡ Fun fact: ...
 -->
+- 🔭 I’m currently working on IES DOMINGO PÉREZ MINIK
+- 🌱 I’m currently learning be a teacher
+- 👯 I’m looking to collaborate on any interesting proyect
+- 🤔 I’m looking for help with my students 😄
+- 📫 How to reach me: 
