@@ -18,4 +18,3 @@ Here are some ideas to get you started:
 - 🌱 I’m currently learning be a teacher
 - 👯 I’m looking to collaborate on any interesting proyect
 - 🤔 I’m looking for help with my students 😄
-- 📫 How to reach me: 
